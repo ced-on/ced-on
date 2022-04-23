@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Steph.
+- 💞️ I’m looking to collaborate on projects relating to web 3.0.
